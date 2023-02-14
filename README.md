@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RandomGuy70hz
-- 👀 I’m interested in all things technology & programming.
+- 👀 I’m interested in all things STEM.
 - 🌱 Always learning.
 - 📫 Discord: RandomGuy70hz#2299
 
